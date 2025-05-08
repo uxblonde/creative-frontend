@@ -1,4 +1,4 @@
-https://www.awwwards.com/Merci-Michel/  
+Merci Michel https://www.awwwards.com/Merci-Michel/  
 Mastromarino https://www.awwwards.com/Mastromarino/  
 UZIK https://www.awwwards.com/uzik/  
 ultranoir https://www.awwwards.com/ultranoir/  
